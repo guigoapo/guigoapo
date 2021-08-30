@@ -1,4 +1,4 @@
-# Welcome To My Profile ^-^
+# Welcome To My Profile
 ## Thank you to visit my profile :)
 
 ![Thank you](https://github.com/guigoapo/guigoapo/blob/main/relifegif.gif)
